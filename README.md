@@ -1,2 +1,2 @@
-# cocol
+# cocol GANZ
 BAPAK LO NGEPRONE DI ALFAMART 
